@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GaSkertube
+- 👀 I’m interested in hacking
+- 📫 How to reach me 
+- 😄 Pronouns: bello undurweer
+- ⚡ Fun fact: did you know fun fact is called fun fact because it's fun?
