@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @GaSkertube
-- 👀 I’m interested in hacking
-- 📫 How to reach me 
-- 😄 Pronouns: bello undurweer
+- 👋 Bello, I’m @GaSkertube
+- 👀 I’m interested in hacking and minion and 
+- 📫 How to reach me [Discord](https://discord.gg/Ta9qXwEgNu)
+- 😄 Pronouns: I am I
 - ⚡ Fun fact: did you know fun fact is called fun fact because it's fun?
